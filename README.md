@@ -1,1 +1,0 @@
-# Solar_Tracking_Manilunar_07
